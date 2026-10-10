@@ -213,4 +213,4 @@ The Lost Vikings is available as a complete free version with all features and u
 Start your adventure with The Lost Vikings today! Download now and help the Vikings find their way home!
 
 ---
-**Last updated:** 2026-10-10 13:24:44 UTC
+**Last updated:** 2026-10-10 18:19:14 UTC
